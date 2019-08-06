@@ -1,0 +1,2 @@
+# failurelife
+my lifeis spoliled
